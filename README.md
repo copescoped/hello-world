@@ -1,1 +1,1 @@
-The Copescoped Compound
+The Copescoped Compound (CsC)
